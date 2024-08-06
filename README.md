@@ -1,5 +1,5 @@
 -  Hi, I’m @Sahil-Hibare
--  I’m Cloud Anlayst  @Oracle
+-  I’m pplications Engineer  @Oracle
 - email hibaresahil3@gmail.com
 
 
